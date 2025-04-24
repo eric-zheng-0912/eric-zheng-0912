@@ -14,3 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+國立台北商業大學企業管理系-學士(畢業)
+國立中山大學政治經濟系-學士(在讀)
+擁有證券商業務員證照(初業)
+初階外匯人員證照
+理財規劃人員證照
